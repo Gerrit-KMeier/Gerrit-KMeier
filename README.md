@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-Telegram: https://t.me/snufsnuff
+Telegram: https://t.me/snuffsnuff
 
